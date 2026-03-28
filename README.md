@@ -1,8 +1,8 @@
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
-hihi!! i'm blissie but you can call me Cream, Minnie or Flutters too!
+hihi!! i'm blissie but you can call me Cream, Wendy, Minnie and Flutters too!
 
-![IMG_6876](https://github.com/user-attachments/assets/c7c1baf1-6a81-49d4-b4c0-53d327787da8)
+![IMG_6603](https://github.com/user-attachments/assets/677c8880-81bc-4c2f-8b72-d78cb656ff07)
 
 
 sth, ygg, raggs and dr fan!
