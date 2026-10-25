@@ -6,10 +6,15 @@
 <img width="1280" height="258" alt="IMG_2253" src="https://github.com/user-attachments/assets/d63c3575-bab7-4f11-a638-0c2656268be5" />
 
  ˖Ი𐑼⋆  𝓑𝓵𝓲𝓼𝓼 /  𝓒𝓻𝓮𝓪𝓶 ⠀.ᐟ
-<img width="1280" height="258" alt="IMG_2253" src="https://github.com/user-attachments/assets/d63c3575-bab7-4f11-a638-0c2656268be5" />
+ 
+<img width="640" height="92" alt="IMG_2260" src="https://github.com/user-attachments/assets/d2b7dce7-6e86-4523-821a-ab7a4d0a5aa3" />
+
  𝓢𝓱𝓮 / 𝓣𝓱𝓮𝔂 ₊˚⊹♡ !!
 
- <img width="1000" height="230" alt="21FBA9B5-F5BC-4071-9314-1D16135CFCCD" src="https://github.com/user-attachments/assets/e6960e98-e0ed-428a-bd9a-72f52296a94e" />
+ <img width="640" height="92" alt="IMG_2259" src="https://github.com/user-attachments/assets/4968720c-b11c-442f-8241-60734942b34e" />
+
 
 <img width="640" height="87" alt="IMG_2385" src="https://github.com/user-attachments/assets/32685a95-26b6-4052-b9c6-7cbabb7961be" />
 <img width="232" height="131" alt="IMG_0882" src="https://github.com/user-attachments/assets/c9f0b27f-efee-4829-904d-45834c1d073c" />
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=mosleyjareya10206&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
