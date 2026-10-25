@@ -12,6 +12,8 @@
 <img width="2048" height="100" alt="IMG_3322" src="https://github.com/user-attachments/assets/61922fa8-62e5-470f-873b-d3c46a01bac4" />
 
  𝓢𝓱𝓮 / 𝓣𝓱𝓮𝔂 ₊˚⊹♡ !!
+ 
+<img width="2048" height="100" alt="IMG_3322" src="https://github.com/user-attachments/assets/61922fa8-62e5-470f-873b-d3c46a01bac4" />
 
  I love my friends and my bf sm!!!
 
