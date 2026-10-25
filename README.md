@@ -11,6 +11,8 @@
 
  𝓢𝓱𝓮 / 𝓣𝓱𝓮𝔂 ₊˚⊹♡ !!
 
+ I love my friends and my bf sm!!!
+
 <img width="640" height="87" alt="IMG_2385" src="https://github.com/user-attachments/assets/32685a95-26b6-4052-b9c6-7cbabb7961be" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=mosleyjareya10206&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
